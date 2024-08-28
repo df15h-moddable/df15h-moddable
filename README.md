@@ -14,3 +14,9 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+Who am I ...?
+
+- My gamer handle has been "dinadan" since forever.
+- I've been modding BGS games since Oldrim (aka Skyrim Legendary Edition).
+- I'm a software developer by profession (also since forever).
